@@ -10,40 +10,40 @@ Bila scalar energy ini diterima oleh tubuh secara teratur dalam rangka waktu ter
 khasiat dan manfaat menggunakan orgonite scalar energy :
 
 a) Meningkatkan Kesehatan
-• Menggetarkan sel 2000 kali/menit sehingga meningkatkan sirkulasi darah, menguatkan fungsi ginjal, mengurangi penggumpalan darah , mengatur tekanan darah, mencegah kebuntuan saluran darah dan membersihkan racun-racun yang ada di darah
+-  Menggetarkan sel 2000 kali/menit sehingga meningkatkan sirkulasi darah, menguatkan fungsi ginjal, mengurangi penggumpalan darah , mengatur tekanan darah, mencegah kebuntuan saluran darah dan membersihkan racun-racun yang ada di darah
 rendah, diabetes, jantung, sinusitis, kolesterol dan berbagai penyakit lainnya.
-• Menetralisir tingkat radiasi berbahaya dari komputer, handphone(HP) , televisi (TV) dan peralatan listrik lainnya
-• Mencegah jamur dan mendetok racun dalam tubuh dan memperlambat proses penuaan.
+- Menetralisir tingkat radiasi berbahaya dari komputer, handphone(HP) , televisi (TV) dan peralatan listrik lainnya
+  - Mencegah jamur dan mendetok racun dalam tubuh dan memperlambat proses penuaan.
 
 b) Meningkatkan/Mempertebal Aura
 Pada manusia Energi yang memancar dari tubuh fisik membentuk gelombang yang membungkus seluruh tubuh sehingga terlihat seperti sebuah gelembung balon tipis yang bentuknya menyerupai telur raksasa, Gelombang inilah yang disebut dengan AURA. 
 Untuk membuktikan Lakukan Foto Aura Sebelum menggunakan orgone scalar energy dan Sesudah Mamakai , Maka Aura Dan Cakra anda akan Langsung berwarna Cerah dan tebal
 Perubahan Aura dan Cakra tergantung dari sipemakai, jika sipemakai sensitif terhadap Energi / bisa merasakan energi maka dalam 10 -15 menit akan terjadi perubahan dan jika sipemakai kurang sensitif , perubahan terjadi 10 menit sampai 30 menit 
 
-• Menetralisir energi negatif dari pengaruh hipnotis paksa (gendam)
-• Menstimulasi titik energi cakra dasar yang terletak pada tulang ekor
-• Meningkatkan daya ingat, fokus dan konsentrasi
+- Menetralisir energi negatif dari pengaruh hipnotis paksa (gendam)
+- Menstimulasi titik energi cakra dasar yang terletak pada tulang ekor
+- Meningkatkan daya ingat, fokus dan konsentrasi
 
 c) Menangkal radiasi HP, komputer, perangkat listrik yang memancarkan radiasi yang merugikan tubuh manusia
 
 manafaat lainnya adalah :
 
-• Di letakkan langsung ke bagian yang bergurat menyentuh badan (biasanya badan terasa hangat, nyaman, rileks, tenang)
-• Di gemggam/pegang ( ada aliran hangat dari tangan ke seluruh badan)
-• Di pakai sebagai air enegi (dimasukkan dalam bak mandi kira-kira 5 menit diputar berlawanan arah jarum jam) bau air tanah / kaporit akan hilang
-• PENTING !! Untuk diminum air energinya ( orgonite scalar energy ditempelkan pada gelas berisi air cukup 5 detik,air tersebut sudah berubah menjadi air heksagonal.
-• Dipakai untuk menyegarkan sawi /sayuran/bunga yang sudah layu caranya rendam sawi/bunga layu dalam air bersama orgone scalar Energy/air energy) 
-• Juga bisa untuk menyegarkan dan menghilangkan bau makanan dalam kulkas . orgone scalar Energy masukkan ke dalam kulkas ( bukan ke dalam pendingin es/Freezer) selam 1-2 jam
-• Membuat rasa rokok menjadi hampa caranya oleskan rokok pada orgone skalar Energy, putar berlawanan arah jarum jam selama 1 menit
-• Dapat meningkatkan kekuatan, keseimbangan, konsentrasi, dan fokus. Bio Energi pendant diakui dapat meningkatkan fokus serta keseimbangan otak kiri dan kanan.
-• Menurunkan tingkat peradangan.
-• Meningkatkan anti penggumpalan sel. 
-• Membasmi virus dan bakteri. 
-• Memerangi dan mencegah sel kanker aktif. 
-• Meningkatkan sistem kekebalan tubuh dan endokrin 
-• Membantu melindungi DNA dari kerusakan. 
-• Meningkatkan penyerapan nutrisi. 
-• Menunda proses penuaan. 
-• Memperbaharui jaringan sel yang mati. 
-• Meningkatkan kandungan oksigen dalam darah dan detokfikasi. 
-• Mengurangi ketegangan sistem syaraf dan meningkatkan kekuatan fisik.
+- Di letakkan langsung ke bagian yang bergurat menyentuh badan (biasanya badan terasa hangat, nyaman, rileks, tenang)
+- Di gemggam/pegang ( ada aliran hangat dari tangan ke seluruh badan)
+- Di pakai sebagai air enegi (dimasukkan dalam bak mandi kira-kira 5 menit diputar berlawanan arah jarum jam) bau air tanah / kaporit akan hilang
+- PENTING !! Untuk diminum air energinya ( orgonite scalar energy ditempelkan pada gelas berisi air cukup 5 detik,air tersebut sudah berubah menjadi air heksagonal.
+- Dipakai untuk menyegarkan sawi /sayuran/bunga yang sudah layu caranya rendam sawi/bunga layu dalam air bersama orgone scalar Energy/air energy) 
+- Juga bisa untuk menyegarkan dan menghilangkan bau makanan dalam kulkas . orgone scalar Energy masukkan ke dalam kulkas ( bukan ke dalam pendingin es/Freezer) selam 1-2 jam
+- Membuat rasa rokok menjadi hampa caranya oleskan rokok pada orgone skalar Energy, putar berlawanan arah jarum jam selama 1 menit
+- Dapat meningkatkan kekuatan, keseimbangan, konsentrasi, dan fokus. Bio Energi pendant diakui dapat meningkatkan fokus serta keseimbangan otak kiri dan kanan.
+- Menurunkan tingkat peradangan.
+- Meningkatkan anti penggumpalan sel. 
+- Membasmi virus dan bakteri. 
+- Memerangi dan mencegah sel kanker aktif. 
+- Meningkatkan sistem kekebalan tubuh dan endokrin 
+- Membantu melindungi DNA dari kerusakan. 
+- Meningkatkan penyerapan nutrisi. 
+- Menunda proses penuaan. 
+- Memperbaharui jaringan sel yang mati. 
+- Meningkatkan kandungan oksigen dalam darah dan detokfikasi. 
+- Mengurangi ketegangan sistem syaraf dan meningkatkan kekuatan fisik.
